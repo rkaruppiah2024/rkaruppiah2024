@@ -1,5 +1,5 @@
 - 🕸️ Hi, I’m rachel
-- 💭 I’m interested in audio producion and bioengineering
+- 💭 I’m interested in audio producion, engineering, and neuroscience
 - 🎣 I’m currently panicked
 - 😟 I’m looking to be saved from the evil mark catos
 - 👾 Fun fact: I love sackboys!1!111!
